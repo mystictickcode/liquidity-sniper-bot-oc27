@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with instant Automation for liquidity sniper bot | volume-spike-detection & price-impact-analysis, the #1 liquidity sniper bot. Includes
 
 
 
